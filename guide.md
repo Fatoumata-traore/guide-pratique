@@ -1,4 +1,4 @@
-Theme: La creation dune campagne de sensibilisation sur le recyclage daans une communaute local.
+Theme: La creation d'une campagne de sensibilisation sur le recyclage daans une communaute local.
 
 Objectiof du projet: Sensibilise les habitants de la communauté au recyclage et les encouragé a adbte les pratiques plus durables.
 les membre de l'équipe:
